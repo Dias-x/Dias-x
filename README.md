@@ -22,10 +22,10 @@ Auf der Suche:
 
 - Gewillt mir viel beizubringen und auf mein Weg unter die Arme helfen
 
-  Was ich mitbringe:
+Was ich mitbringe:
 
-  - Junge Motivierte Person
+- Junge Motivierte Person
  
-  - 100% einsatz
+- 100% einsatz
  
-  - Loyalität
+- Loyalität
